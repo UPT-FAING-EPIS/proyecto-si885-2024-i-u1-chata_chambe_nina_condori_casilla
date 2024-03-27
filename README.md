@@ -6,7 +6,7 @@
 | Nina Vargas, Luigui   |
 | Chambe Torres, Edgard |
 | Chata Choque, Brant   |
-| Casilla, Ivan         |
+| Casilla Maquera, Ivan |
 
 ![image](https://github.com/UPT-FAING-EPIS/proyecto-si885-2024-i-u1-chata_chambe_nina_condori_casilla/assets/90207441/496b28fd-7f96-4760-8e43-754bc62c0ba9)
 
