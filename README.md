@@ -12,12 +12,12 @@
 
 VISION:
 
-Policía moderna, eficiente y cohesionada al servicio de la sociedad y del Estado, comprometida con una cultura de paz, con vocación de servicio y reconocida por su respeto irrestricto a la persona, los derechos humanos, la Constitución y las leyes, por su integración con la comunidad, por su honestidad, disciplina y liderazgo de sus miembros.
+Consolidarnos como el órgano de control de la Policía Nacional del Perú que administre el comportamiento del personal policial con disciplina y autoridad, de acuerdo a principios y valores éticos, que promuevan el cambio a fin de conseguir los objetivos estratégicos de la PNP y básicamente cumplir la misión constitucional.
 
 
 MISION:
 
-La Policía Nacional del Perú es una institución del Estado que tiene por misión garantizar, mantener y restablecer el orden interno, prestar protección y ayuda a las personas y a la comunidad, garantizar el cumplimiento de las leyes y la seguridad del patrimonio público y privado, prevenir, investigar y combatir la delincuencia; vigilar y controlar las fronteras; con el propósito de defender a la sociedad y a las personas, a fin de permitir su pleno desarrollo, en el marco de una cultura de paz y de respeto a los derechos humanos.
+Preservar y controlar el mantenimiento de la disciplina, imagen, prestigio y calidad del servicio policial con procedimientos oportunos, transparentes, efectivos y diligentes, promoviendo investigaciones disciplinarias que permitan imponer sanciones justas e impulsar inspecciones de control de los servicios en el marco de una gestión pública moderna.
 
 
 OBJETIVO
