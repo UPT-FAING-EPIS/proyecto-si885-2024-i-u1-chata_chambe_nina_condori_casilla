@@ -22,13 +22,12 @@ Preservar y controlar el mantenimiento de la disciplina, imagen, prestigio y cal
 
 OBJETIVO
 
-PRIMER OBJETIVO: Cumplimiento normativo y legal: Garantizar que todas las actividades y operaciones de la organización cumplan con las leyes, regulaciones y normativas aplicables en el Perú, así como con las políticas internas de la empresa.
+PRIMER OBJETIVO: Cumplimiento normativo y legal: Garantizar que todas las actividades y operaciones de la organización cumplan con las leyes, regulaciones y normativas aplicables en el Perú.
 
-SEGUNDO OBJETIVO: Prevención de la corrupción y el fraude: Detectar y prevenir cualquier acto de corrupción, fraude o conducta indebida dentro de la organización, asegurando la transparencia y la integridad en todas las actividades empresariales.
+SEGUNDO OBJETIVO: Coordinar evaluaciones a través de informes de auditoría elaborados por entidades especializadas, para garantizar el cumplimiento de normativas y buenas prácticas, fortaleciendo la transparencia y eficiencia institucional.
 
-TERCER OBJETIVO: Control interno y gestión de riesgos: Evaluar y fortalecer los controles internos de la organización para mitigar los riesgos operativos, financieros y legales, identificando áreas de vulnerabilidad y recomendando acciones correctivas.
+TERCER OBJETIVO: Garantizar el cumplimiento oportuno de las denuncias presentadas, asegurando que se diligencien dentro del plazo establecido y se siga el debido procedimiento, con el fin de fortalecer la transparencia y eficiencia del sistema de justicia.
 
-CUARTO OBJETIVO: Eficiencia operativa y mejora continua: Identificar oportunidades para mejorar la eficiencia y la efectividad de los procesos internos, optimizando los recursos disponibles y promoviendo una cultura de mejora continua en toda la organización.
+CUARTO OBJETIVO: Supervisar y verificar los servicios policiales en la region y asegurar el cumplimiento de los estándares de calidad, ética y profesionalismo, contribuyendo así a fortalecer la confianza y seguridad ciudadana en la labor policial.
 
-QUINTO OBJETIVO: Rendición de cuentas y transparencia: Promover la rendición de cuentas entre los empleados y directivos de la organización, estableciendo mecanismos de reporte y seguimiento que aseguren la transparencia en la toma de decisiones y la gestión de recursos.
 
