@@ -1,4 +1,4 @@
-## POLICIA NACIONAL DEL PERÚ
+## POLICIA NACIONAL DEL PERÚ - ÁREA DE INSPECTORIA TACNA-AREQUIPA
 
 | Nombre                |
 |-----------------------|
